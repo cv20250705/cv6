@@ -14,6 +14,6 @@
 观看非常简单，点击播放即看。平台支持跨设备播放，手机、电脑、平板都能畅享无缝观影体验。同时，平台采用HTTPS加密技术，保障隐私安全，让你安心观看。
 立即访问，享受最新、最热的日本AV免费影片，开始你的观影之旅吧！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/cv20250705/cv6 ）</span>
 
 
